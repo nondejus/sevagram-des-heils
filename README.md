@@ -1,1 +1,18 @@
-# sieg-heil
+-------------
+| sieg heil |
+-------------
+
+'al bundi look-a-like'
+
+
+# eldely care
+https://en.wikipedia.org/wiki/Elderly_care
+
+# big screen
+https://en.wikipedia.org/wiki/Large-screen_television_technology
+
+# hitlergroet
+https://nl.wikipedia.org/wiki/Hitlergroet
+
+# daalhof
+https://nl.wikipedia.org/wiki/Daalhof
